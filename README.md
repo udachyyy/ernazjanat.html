@@ -1,2 +1,0 @@
-# ernazjanat.html
-ernyazhanat-site
